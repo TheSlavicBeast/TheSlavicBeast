@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TheSlavicBeast
+- 👀 I’m interested in coding lmao
+- 🌱 I’m currently learning GCSE Comp. Sci. involving VB.NET
+- 📫 How to reach me: Message me on Discord @ TheSlavicBeastXD#4115 or Tweet me @TheSlavicBeast
